@@ -10,3 +10,6 @@ Mengikuti rangkaian kegiatan INTRIVIA 2026 menjadi pengalaman yang sangat berkes
 
 ## Kesan Pesan Cluster 19 Sejauh Ini
 Dinamika di Cluster 19 terasa sangat seru dan hangat. Teman-teman di dalam cluster saling membantu dan tidak ragu untuk berdiskusi ketika ada yang mengalami kendala teknis. Selain itu, kakak pemandu cluster juga sangat komunikatif, sabar, dan sigap dalam mendampingi kami menyelesaikan setiap penugasan.
+
+## Harapan Kuliah
+Harapan saya selama menjalani masa perkuliahan adalah dapat menyerap ilmu akademis dengan optimal, mengasah keterampilan teknis secara mandiri maupun berorganisasi, serta membangun relasi yang positif. Semoga seluruh proses belajar ini dapat menjadi bekal yang solid untuk karir saya di masa depan.
